@@ -1,1 +1,1 @@
-<h1 align="center">Hi 👋, I'm Anjalika Sewwandi</h1>
+<h1 align="center">Hi 👋, I'm Anjali Kudagamage</h1>
